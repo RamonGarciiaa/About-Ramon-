@@ -15,4 +15,4 @@ My favorite activity is going to the gym because I have a workout plan and I go 
 
  [Work out tutorial ](https://www.youtube.com/shorts/Y6WxMTrcGJ0)
 
- ![Gym](image.jpg)
+ ![Gym](photo-1558611848-73f7eb4001a1.avif)
