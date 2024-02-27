@@ -7,11 +7,12 @@ My favorite activity is going to the gym because I have a workout plan and I go 
 - It boost my mental health 
 - It's helping me lose weight
 
- ### My top 4 favorite muscles to hit
+ ### My top 5 favorite muscles to hit
 1. Chest
 2. triceps
 3. biceps
 4. Back
+5. Legs
 
  [Work out tutorial ](https://www.youtube.com/shorts/Y6WxMTrcGJ0)
 
