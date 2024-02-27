@@ -1,6 +1,6 @@
 # My Favorite Activity: Going to the gym 
 
-My favorite activity is going to the gym because I have a workout plan and I go to the gym 5 days a week.
+My favorite activity is going to the gym because I have a workout plan and I go to the gym 5 days a week. This plan allows me to stay in shape and accomplish goals that I have set for myself and stay consistent!
 
 ### 3 reasons why 
 - It keeps me active 
